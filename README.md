@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Lightning-McDrip
+- 👀 I’m interested in breathing
+- 🌱 Currently learning to make my bed
+- 💞️ I’m looking to destroy turbo-capitalism
+- 📫 Don't @ me
